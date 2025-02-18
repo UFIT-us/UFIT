@@ -5,3 +5,5 @@ We greatly appreciate your interest and motivation to join us at The Ohio State 
 Our team is passionate about building a more innovative local food system that embodies agroecological principles. We aim to achieve this through our shared values – 
 treating others and ourselves with respect and empathy, as well as practicing curiosity and innovation. We seek to enable this through a work environment that includes 
 **communication, proactivity, collaboration, and resourcefulness**.
+
+![Descrição da imagem](ufit_logo.png)
