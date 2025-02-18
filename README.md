@@ -7,3 +7,7 @@ treating others and ourselves with respect and empathy, as well as practicing cu
 **communication, proactivity, collaboration, and resourcefulness**.
 
 ![Descrição da imagem](ufit_logo.png.png)
+
+If there is any questios, please contact us:
+🐦 [Twitter|X](https://x.com/fernandakrupek)  
+📧 E-mail: [Krupek.1@osu.edu](mailto:Krupek.1@osu.edu)  
