@@ -6,4 +6,4 @@ Our team is passionate about building a more innovative local food system that e
 treating others and ourselves with respect and empathy, as well as practicing curiosity and innovation. We seek to enable this through a work environment that includes 
 **communication, proactivity, collaboration, and resourcefulness**.
 
-![Descrição da imagem](ufit_logo.png)
+![Descrição da imagem](ufit_logo.png.png)
