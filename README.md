@@ -1,4 +1,4 @@
-🌱🍎💡 Hi! First, **welcome to the Urban Food Innovations Team!** 🌱🍎💡
+🌱🍎💡🍽️🌍 Hi! First, **welcome to the Urban Food Innovations Team!** 🌱🍎💡🍽️🌍
 
 We greatly appreciate your interest and motivation to join us at The Ohio State University. Broadly, our team seeks to cultivate horticultural food production systems serving urban and regional markets that are productive and nutritive, resource-use efficient, economically viable, and socially responsible. By joining our team, you are committing to pursue research, perform quality experiments, and critically analyze data to further our knowledge about urban agriculture. In this role, you are committing to fostering and supporting your personal and professional growth to better meet your career and life goals however **you** define them.
 
